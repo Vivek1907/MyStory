@@ -8,3 +8,39 @@ the reason that this version of the race is not widely known is that very few of
 A century later Vikram Seth broadened the satire in his verse retelling of the fable in Beastly Tales (1991) and had it both ways. There is nothing to recommend in the behaviour of either protagonist by way of a moral. While the Tortoise's victory bolsters its joyless self-righteousness, the hare-brained loser is taken up by the media and "pampered rotten/ And the tortoise was forgotten"
 
 There is a Greek version of the fable but no early Latin version. For this reason it did not begin to appear in printed editions of Aesop's fables until the 16th century, one of the earliest being Bernard Salomon's Les Fables d'Esope Phrygien, mises en Ryme Francoise (1547).[11] Versions followed from the Netherlands (in Dutch, 1567) and Flanders (in French, 1578)[12] but none in English before Francis Barlow's edition of 1667.
+
+There is a Greek version of the fable but no early Latin version. For this reason it did not begin to appear in printed editions of Aesop's fables until the 16th century, one of the earliest being Bernard Salomon's Les Fables d'Esope Phrygien, mises en Ryme Francoise (1547).[11] Versions followed from the Netherlands (in Dutch, 1567) and Flanders (in French, 1578)[12] but none in English before Francis Barlow's edition of 1667.[13]
+
+Among the many illustrations of the fable, that by the French caricaturist Jean Grandville is novel in portraying the tortoise as running upright. This is also how he is shown in the Walt Disney cartoon version of "The Tortoise and the Hare" (1935).[14] Another departure from the ordinary in Grandville's etching is the choice of a mole (complete with dark glasses) rather than, as usual, a fox as the judge at the finishing line. Auguste Delierre makes the judge a monkey in the 1883 edition of La Fontaine's fables that he illustrated.[15][16] La Fontaine says in his rhyme that it does not matter who the judge is; his interpreters have taken him at his word.
+
+Outside of book production, there is an early 17th-century oil painting of the fable by the Flemish landscape artist Jan Wildens.[17] The hare enters on the left, racing over an upland road as dawn breaks; the tortoise is nowhere in sight. In the mid-19th century, the French animal painter Philibert Léon Couturier also devoted an oil painting to the fable in which, as in Grandville's illustration, the tortoise is shown racing upright.[18] In modern times there have been two pieces of popular sculpture aimed at children. Nancy Schön's was made to commemorate the centenary of the Boston Marathon in 1996 and is sited in Copley Square, the finishing line for the race.[19] The tortoise is shown determinedly stumping forward while the hare has paused to scratch behind its ear. In the following year a painted steel sculpture by Michael Browne and Stuart Smith was set up near the cross-country finish line at Van Cortlandt Park in the Bronx.[20] The hare is mounted on the tortoise's shell and appears to be trying to leap over him.
+
+The fable has also been illustrated on stamps from several countries. These include:
+
+Many allusions to the fable in musical titles are of limited or no relevance, but two interpretive instrumental versions may be noted. The one by Yellowjackets jazz quartet was recorded on their Politics album in 1988.[31] The Anglo-Irish band Flook's title is on their Haven album (2005).[32]
+
+There have also been several verbal settings of Aesop's fable:
+
+By W. Langton Williams (c. 1832-1896) in his Aesop’s Fables, versified & arranged for the piano forte (London, 1890)[33]
+In Aesop's Fables Interpreted Through Music for voice and piano (New York, 1920) by Mabel Wood Hill (1870–1954). In this the moral stated is that "Plodding wins the race".[34]
+Vincent Persichetti included it as the third piece in his Fables for narrator and orchestra (Op. 23, 1943)
+A poetic version set for children's voices and piano by Edward Hughes in his Songs from Aesop's Fables (1965)
+The cellist Evalyn Steinbock's setting for violin, cello and narrator in 1979
+As the first of Anthony Plog's Aesop’s Fables for narrator, piano and horn (1989/93), in which the instruments mimic the pace of the animals[35]
+Among Scott Watson's Aesop's Fables for narrator and orchestral accompaniment (1999)
+A setting for solo voice by Lucian Cristofor Tugui (2006)
+As one of the five pieces in Bob Chilcott's Aesop's Fables for piano and choir (2008)[36]
+A setting for a cappella choir by Darmon Meader (2009)[37]
+As one of David Edgar Walther's ‘short operatic dramas’, composed in 2009
+Movement Three of Julie Giroux's A Symphony of Fables, composed in 2006
+Among ten on David P Shortland's Australian recording, Aesop Go HipHop (2012), where the sung chorus after the hip hop narration underlines the fable's moral, "Slow and steady wins the race"[38]
+Folk variants
+The many other variants of the story in oral folk tradition appear worldwide and are classed as Aarne-Thompson-Uther type 275.[39] In most of these there is a race between unequal partners but most often brain is matched against brawn and the race is won by means of trickery. Broadly this is of two types: either the slower animal jumps on the other's back or tail and hops off at the end when the creature turns round to see where his challenger has got to, or else he is deceived by lookalikes substituting themselves along the course.
+
+Tales with a similar theme emphasizing doggedness have been recorded in Native American culture. Hummingbird and Crane agree to race from one ocean to the other. Though Hummingbird flies faster, he stops at night to sleep. Crane, however, flies overnight and is overtaken by Hummingbird later and later during the day, at length coming in first. The ultimate prize differs between versions and includes choice of habitat, the love of a girl, or the right to cut the other down to size.[40]
+
+The Tortoise and the Hare" is one of Aesop's Fables and is numbered 226 in the Perry Index.[1] The account of a race between unequal partners has attracted conflicting interpretations. The fable itself is a variant of a common folktale theme in which ingenuity and trickery (rather than doggedness) are employed to overcome a stronger opponent.
+
+Aesop's Fables, or the Aesopica, is a collection of fables credited to Aesop, a slave and storyteller believed to have lived in ancient Greece between 620 and 564 BCE. Of diverse origins, the stories associated with his name have descended to modern times through a number of sources and continue to be reinterpreted in different verbal registers and in popular as well as artistic media.
+
+The fables originally belonged to the oral tradition and were not collected for some three centuries after Aesop's death. By that time a variety of other stories, jokes and proverbs were being ascribed to him, although some of that material was from sources earlier than him or came from beyond the Greek cultural sphere. The process of inclusion has continued until the present, with some of the fables unrecorded before the Late Middle Ages and others arriving from outside Europe. The process is continuous and new stories are still being added to the Aesop corpus, even when they are demonstrably more recent work and sometimes from known authors.
